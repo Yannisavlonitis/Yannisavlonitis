@@ -1,5 +1,5 @@
 
-BSc Biology and Molecular biology<br>MSc Bioinformatics<br>Synthetic Biology research at CNB - CSIC<br>English, Spanish, Greek<br>He/Him
+
 
 
 ## 🌐 Socials:
